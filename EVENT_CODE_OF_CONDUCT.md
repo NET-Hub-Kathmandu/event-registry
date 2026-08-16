@@ -37,4 +37,4 @@ Thank you for helping to make this a welcoming, friendly space for all.
 
 ## Reporting an incident
 
-If you are being harassed, notice that someone else is being harassed, have any other concerns, or if you believe an Event Participant is not acting in a way compliant with this Code of Conduct, please speak directly with a venue security officer or organizer for urgent help, or email us at nabarajghimire222@gmail.com for non-urgent issues. For life threatening situations, please dial 100 immediately.
+If you are being harassed, notice that someone else is being harassed, have any other concerns, or if you believe an Event Participant is not acting in a way compliant with this Code of Conduct, please speak directly with a venue security officer or organizer for urgent help, or email us at  info@dotnethubkathmandu.org for non-urgent issues. For life threatening situations, please dial 100 immediately.
